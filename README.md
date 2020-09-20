@@ -12,3 +12,6 @@ Third Paragraph:
 
 Fourth Paragraph:
   Darkness falls across the town, lit by fires and street lights. Confusion and fear fills the slience. Tensions rise and riots begin to burst through the seams of tranquility. Unrest burdens us all with the weight of violence and terror. Is it all fake? Whats the point of trying? Are we all going to die? As questions continue to flood, blood continues to boil. Until, full system collapse, chaos...  
+
+Fifth Paragraph:
+  Time is running out, it might be fake but it still feels wrong to me. Is it? Countless lives lost, but really are they lost if they were never real to begin with. I don't know. I don't know. I don't know. I don't... These questions are killing me. I'm so confused. I don't know what to believe. Like can it all be just a game? Gunshots in the distance as sirens blare. What should I do? Should I leave the house, should I hide? Who cares it could all be over in an hour anyway. Then suddnenly out of nowhere the voice speaks again...
