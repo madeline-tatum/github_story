@@ -15,3 +15,6 @@ Fourth Paragraph:
 
 Fifth Paragraph:
   Time is running out, it might be fake but it still feels wrong to me. Is it? Countless lives lost, but really are they lost if they were never real to begin with. I don't know. I don't know. I don't know. I don't... These questions are killing me. I'm so confused. I don't know what to believe. Like can it all be just a game? Gunshots in the distance as sirens blare. What should I do? Should I leave the house, should I hide? Who cares it could all be over in an hour anyway. Then suddnenly out of nowhere the voice speaks again...
+
+Sixth Paragraph:
+  "The first hour has past, you have a choice in how the last hour goes, make it a good hour to watch."  What does that mean?, Aren't they in control?, this is a nightmare, a bad Syfy film. I look up into nothingness, the only thing left is... Oh my god, People are glitching!, Did someone just dissapear? I keep whispering to my self that this isn't real and just a dream. I want to wake up, I pinch my are and I don't feel anything. I scream but no body looks at me. Everyone is gone. Why am I still here? Wake up, wake up, wake up.  
